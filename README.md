@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+![image alt](https://github.com/Manav121257N/Manav121257N/blob/8b170beb2103a6ae93b5e467f37ae24522f543ce/Screenshot%202025-08-03%20185315.png)
+![image alt](https://github.com/Manav121257N/Manav121257N/blob/8b170beb2103a6ae93b5e467f37ae24522f543ce/Screenshot%202025-08-03%20185327.png)
+![image alt](https://github.com/Manav121257N/Manav121257N/blob/8b170beb2103a6ae93b5e467f37ae24522f543ce/Screenshot%202025-08-03%20185338.png)
